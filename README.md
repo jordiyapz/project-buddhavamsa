@@ -1,6 +1,6 @@
-# Sumedha Buddhavaṃsa
+# Rangkuman Silsilah Para Buddha
 
-## Cerita Singkat Buddha Sumedha
+## 10. Buddha Sumedha
 
 ### Kehidupan rumah tangga
 
