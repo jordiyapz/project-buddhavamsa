@@ -1,15 +1,11 @@
 # Rangkuman Silsilah Para Buddha
 
-## 10. Buddha Sumedha
+## 11. Buddha Sumedha
 
-### Kehidupan rumah tangga
+### Pangeran Sumedha
 
-Setelah berakhirnya masa Buddha Padumuttara di dunia, terjadi 70.000 eon yang kosong (suñña-kappā). Kemudian tiba lah pada satu eon dengan dua Buddha (manda-kappa) sekitar 3000 eon sebelum yang sekarang. Dua Buddha tersebut bernama Sumedha dan Sujātā.
-Bakal Buddha Sumedha sebagai Bodhisatta, setelah turun dari alam Tusitā ke rahim Ratu Sudatta, ia di-lahirkan di taman kerajaan Sudassana. Sebagai pangeran, ia hidup di tiga istana bernama Sucandāna, Kancana, dan Sirivaddhana. Ketika usianya tiba, ia menikah dengan permaisuri utamanya bernama Sumanā yang memiliki 48.000 pelayan kehormatan. Ia menikmati kehidupan rumah tangga yang mewah tersebut selama 9000 tahun. 
-
-### Meninggalkan kehidupan duniawi
-
-Ketika masih hidup sebagai perumah-tangga, Putri Sumanā melahirkan anak bernama Punabbasu. Lalu, setelah melihat 4 pertanda, pangeran pun pergi meninggalkan kehidupan duniawi dengan menunggangi gajah dan menjadi pertapa. Ia diikuti oleh 100 koti (100 x 10jt = 1 Miliyar) pria yang juga menjadi pertapa. Bersama dengan 1 miliyar pertapa tersebut, mereka berlatih pertapaan keras (dukkaracariyā) selama 15 hari. Di hari Pencerahan agung, tepat di bulan purnama Waisak, ia makan nasi-susu pemberian Nakula, seorang putri dari hartawan di desanya, dan menghabiskan siangnya di kebun *sāla*. Di malam hari, setelah meninggalkan para pendampingnya, dia pergi ke Pohon Bodhi *Mahānipa*. Ketika ia menebarkan delapan genggam rumput yang ia peroleh dari pertapa bernama Sirivaddhana di bawah pohon *Mahānipa*, seketika Singgasana Kemenangan (*Aparājita Pallaṅka*) berukuran 57 kubit muncul. Sembari duduk bersila, Bodhisatta mengerahkan energi dalam 4 level, mengenyahkan bala tentara Māra, dan merealisasi Kebuddhaan, Yang Mahatahu, Yang Tercerahkan Sempurna, Penguasa Tiga Dunia. Cahaya keluar dari tubuh-Nya ke seluruh arah sejauh 1 yojana, bagaikan rubi milik seorang Raja Dunia.
+Tiga ribu eon yang lalu, tepatnya 70 ribu eon kosong (_suññakappa_) setelah Buddha Padumuttara, 
+terdapat eon dengan dua Buddha, yakni Buddha Sumedha dan Sujāta. Bodhisatta Sumedha lahir di taman kerajaan Sudassana sebagai seorang pangeran. Ketika usianya tiba, ia menikah dengan Putri Sumanā yang memiliki 48 ribu pelayan kehormatan dan melahirkan anak bernama Punabbasu. Setelah melihat 4 pertanda di usia 9000 tahun, Bodhisatta meninggalkan kehidupan kerajaan dengan gajah didampingi oleh 100 koti (1 miliyar) pria yang ingin menjadi pertapa juga. Mereka berlatih praktek pertapaan keras (dukkaracariyā) selama 15 hari. Di hari purnama Waisak, setelah memakan nasi-susu dari Nakula, Bodhisatta pergi sendirian ke pohon Bodhi Mahānipa. Delapan genggam rumput dari pertapa Sirivaddhana yang kemudian ia tebarkan di bawah pohon pun menjadi Singgasana Kemenangannya (*Aparājita Pallaṅka*), selebar 57 kubit. Setelah mengerahkan energi dalam 4 level dan mengalahkan Māra, ia merealisasi Pencerahan Sempurna, menjadi Penguasa Tiga Dunia, Sang Buddha. Cahaya keluar dari tubuh-Nya ke seluruh arah sejauh 1 yojana bagaikan rubi milik Raja Dunia.
 
 ### Pembabaran Dhamma (Dhammābhisamayā)
 
