@@ -20,6 +20,10 @@ Di taman Canda (Candārama) pada masa *vassa* pertama-Nya, dua pria muda bernama
 
 Pemimpin jagat (cakkavattī) yang memimpin daratan melampaui 4 samudra luas atas dasar kebenaran (bukan dengan senjata), dengan pendampingnya yang tak-terhitung, yang berkediaman di Candavati saat itu adalah Bodhisatta kita. Ketika Buddha Koṇḍañña dalam perjalanan diikuti 100.000 koṭi arahat tiba di Candavati, Raja Vijitāvī menyambut dan mengundang makan para Saṅgha. Setelah mendengar nasehat yang Buddha berikan atas dasar apresiasi atas undangannya, Raja mengundang Saṅgha untuk menghabiskan 3 bulan *vassa* di kota Candavati demi kesejahteraan rakyat. Sang raja juga melakukan kedermawanan tanpa banding dalam kongregasi bhikkhu yang dipimpin Buddha (Buddhapamukha-saṅgha) selama *vassa*. Kemudian Buddha Koṇḍañña menyatakan ramalan agung-Nya: "Sejumlah eon tak terhingga dari sekarang, di eon setelah 3 *asaṅkheyya* dan 100.000 eon, Anda pasti menjadi seorang Buddha". Setelah mendengar ramalan agung, dipenuhi oleh keyakinan yang menjangkau luas, Raja mendanakan seluruh kerajaannya kepada Buddha dan menjadi Bhikkhu. Setelah mempelajari Tipiṭaka, ia merealisasi 8 pencapaian dan 5 pengetahuan lebih tinggi. Kemudian terlahir di alam Brahma setelah kematiannya.
 
+### Relik Buddha Koṇḍañña
+
+Buddha Koṇḍañña parinibbāna di Candārama. Relik-Nya yang utuh keemasan tanpa kepingan disimpan di taman yang sama dalam *cetiya* setinggi 7 yojana dikelilingi 7 permata mulia.
+
 ## 11. Buddha Sumedha
 
 ### Kehidupan Kerajaan
