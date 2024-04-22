@@ -1,6 +1,28 @@
+## 2. Buddha Koṇḍañña
+
+### Kehidupan Kerajaan
+
+Sejumlah eon yang tak-terhitung (asaṅkheyya) setelah berakhirnya masa Buddha Dīpaṅkarā, dimasa usia rata-rata manusia 100.000 tahun, lahirlah Bodhisatta dari suku Koṇḍañña yang telah menyempurnakan paraminya selama 60 eon tak-terhingga dan 100.000 eon -- Pangeran Koṇḍañña -- di kota Rammavati. Setelah cukup umur, ia menikah dengan putri bernama Rucidevī dan dihibur oleh 300.000 penari dan pelayan wanita. Setelah melihat 4 peristiwa dan anaknya yang bernama Vijitasena lahir, Bodhisatta meninggalkan keduniawian di umur 10.000 tahun dengan kereta yang ditarik 4 kuda ras murni, diikuti oleh 10 koṭi (100 miliyar) pengikut yang menjadi pertapa juga. Mereka berlatih pertapaan keras (dukkaracariyā). Di hari pencerahan, setelah memakan nasi-susu pemberian Yasodharā, ia pergi sendiri ke pohon Sālakalyāṇi, menebar 8 genggam rumput pemberian pertapa Sunanda, dan duduk di Singgasana Kemenangan (aparājita pallaṅka) berukuran 57 kubit. Beliau mengalahkan bala tentara Māra dan mencapai kemenangan dengan sinar bagaikan rembulan ataupun matahari tengah hari.
+
+### Pembabaran Dhamma (Dhammābhisamayā)
+
+Tujuh minggu setelah pencerahan sempurna, setelah menerima permohonan dari Brahmā untuk mengajar, Buddha Koṇḍañña mengingat 10 koṭi pertapa yang mencontoh pelepasan-Nya dan menemui mereka di Devavana, kota Arundhavati, secara instan menggunakan kekuatan batin-Nya. Mereka menyambut Buddha dengan penuh kesetiaan. Buddha kemudian memutar Roda Dhamma dan sebanyak 100 koṭi dewa dan manusia, beserta 10 koṭi bhikkhu merealisasi Empat Kebenaran.
+
+Di kesempatan lain, atas pertanyaan seorang dewa terkait apa saja berkah utama, Buddha membabarkan Diskursus Berkah Utama (Maṅgala Sutta) kepada dewa dan brahma dari 10.000 sistem dunia, menyebabkan 90 koṭi-nya merealisasi kesucian Arahat. Jumlah sotāpanna tak-terhitung banyaknya.
+
+Kejadian ketiga adalah ketika Buddha Koṇḍañña mengajarkan Dhamma di angkasa setelah mengalahkan pertapa dengan menunjukkan Mukjizat Ganda (yamaka pāṭihāriya). Sejumlah 80.000 koṭi manusia, dewa, dan brahma merealisasi buah arahat. Tiga tingkat dibawahnya tak-terhitung banyaknya.
+
+### Kongregasi Para Murid (Sannipāta)
+
+Di taman Canda (Candārama) pada masa *vassa* pertama-Nya, dua pria muda bernama Bhadda dan Subhadda, calon siswa utama Buddha, bersama dengan 10.000 pemuda mencapai arahat setelah mendengar pembabaran Dhamma. Disana Buddha dikelilingi 1000 koṭi arahat yang dipimpin Subhadda Thera melafalkan Pāṭimokkha di Purnama Jettha (Mei/Juni). Di waktu lain, pembabaran Pāṭimokkha dipimpin oleh Vijitasena Thera dengan Buddha dikelilingi 1000 koṭi arahat. Yang ketiga, setelah Buddha menahbiskan Raja Udena beserta pengikutnya. Ketika mereka mencapai kesucian arahat, Buddha menghadiri pembabaran Pāṭimokkha beserta 90 koṭi arahat yang dipimpin oleh Udena Thera.
+
+### Raja Universal Vijitāvī, Bodhisatta Gautama
+
+Pemimpin jagat (cakkavattī) yang memimpin daratan melampaui 4 samudra luas atas dasar kebenaran (bukan dengan senjata), dengan pendampingnya yang tak-terhitung, yang berkediaman di Candavati saat itu adalah Bodhisatta kita. Ketika Buddha Koṇḍañña dalam perjalanan diikuti 100.000 koṭi arahat tiba di Candavati, Raja Vijitāvī menyambut dan mengundang makan para Saṅgha. Setelah mendengar nasehat yang Buddha berikan atas dasar apresiasi atas undangannya, Raja mengundang Saṅgha untuk menghabiskan 3 bulan *vassa* di kota Candavati demi kesejahteraan rakyat. Sang raja juga melakukan kedermawanan tanpa banding dalam kongregasi bhikkhu yang dipimpin Buddha (Buddhapamukha-saṅgha) selama *vassa*. Kemudian Buddha Koṇḍañña menyatakan ramalan agung-Nya: "Sejumlah eon tak terhingga dari sekarang, di eon setelah 3 *asaṅkheyya* dan 100.000 eon, Anda pasti menjadi seorang Buddha". Setelah mendengar ramalan agung, dipenuhi oleh keyakinan yang menjangkau luas, Raja mendanakan seluruh kerajaannya kepada Buddha dan menjadi Bhikkhu. Setelah mempelajari Tipiṭaka, ia merealisasi 8 pencapaian dan 5 pengetahuan lebih tinggi. Kemudian terlahir di alam Brahma setelah kematiannya.
+
 ## 11. Buddha Sumedha
 
-### Pangeran Sumedha
+### Kehidupan Kerajaan
 
 Tiga ribu eon yang lalu, tepatnya 70 ribu eon kosong (_suññakappa_) setelah Buddha Padumuttara,
 terdapat eon dengan dua Buddha, yakni Buddha Sumedha dan Sujāta. Bodhisatta Sumedha lahir di taman kerajaan Sudassana sebagai seorang pangeran. Ketika usianya tiba, ia menikah dengan Putri Sumanā yang memiliki 48 ribu pelayan kehormatan dan melahirkan anak bernama Punabbasu. Setelah melihat 4 pertanda di usia 9000 tahun, Bodhisatta meninggalkan kehidupan kerajaan dengan gajah didampingi oleh 100 koṭi (1 miliyar) pria yang ingin menjadi pertapa juga. Mereka berlatih praktek pertapaan keras (dukkaracariyā) selama 15 hari. Di hari purnama Waisak, setelah memakan nasi-susu dari Nakula, Bodhisatta pergi sendirian ke pohon Bodhi Mahānipa. Delapan genggam rumput dari pertapa Sirivaddhana yang kemudian ia tebarkan di bawah pohon pun menjadi Singgasana Kemenangannya (_Aparājita Pallaṅka_), selebar 57 kubit. Setelah mengerahkan energi dalam 4 level dan mengalahkan Māra, ia merealisasi Pencerahan Sempurna, menjadi Penguasa Tiga Dunia, Sang Buddha. Cahaya keluar dari tubuh-Nya ke seluruh arah sejauh 1 yojana bagaikan rubi milik Raja Dunia.
