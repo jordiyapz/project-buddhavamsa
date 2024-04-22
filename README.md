@@ -1,3 +1,5 @@
+# Ringkasan Riwayat Para Buddha
+
 ## 2. Buddha Koṇḍañña
 
 ### Kehidupan Kerajaan
