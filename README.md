@@ -26,6 +26,32 @@ Pemimpin jagat (cakkavattī) yang memimpin daratan melampaui 4 samudra luas atas
 
 Buddha Koṇḍañña parinibbāna di Candārama. Relik-Nya yang utuh keemasan tanpa kepingan disimpan di taman yang sama dalam *cetiya* setinggi 7 yojana dikelilingi 7 permata mulia.
 
+### English Version 
+
+#### Kingdom Life
+
+Countless eons (asaṅkheyya) after the end of the era of Buddha Dīpaṅkarā, in a time when the average lifespan of humans was 100,000 years, a Bodhisatta was born from the Koṇḍañña clan who had perfected his perfections for 60 countless eons and 100,000 eons – Prince Koṇḍañña – in the city of Rammavati. After reaching adulthood, he married a princess named Rucidevī and was entertained by 300,000 female dancers and servants. After witnessing the four signs and the birth of his son named Vijitasena, the Bodhisatta renounced worldly life at the age of 10,000 years, with a chariot drawn by four purebred horses, followed by 10 koṭi (100 billion) followers who also became ascetics. They practiced severe asceticism (dukkaracariyā). On the day of enlightenment, after consuming rice milk given by Yasodharā, he went alone to the Sālakalyāṇi tree, scattered eight handfuls of grass given by the ascetic Sunanda, and sat on the Unconquered Throne (aparājita pallaṅka) measuring 57 cubits. He defeated the army of Māra and achieved victory with a radiance like that of the moon or the midday sun.
+
+#### Dissemination of the Dhamma (Dhammābhisamayā)
+
+Seven weeks after the perfect enlightenment, after receiving a request from Brahmā to teach, Buddha Koṇḍañña remembered the 10 koṭi ascetics who emulated his liberation and met them in Devavana, the city of Arundhavati, instantly using his mental powers. They welcomed the Buddha with full loyalty. The Buddha then turned the Wheel of Dhamma, and as many as 100 koṭi gods and humans, along with 10 koṭi monks, realized the Four Noble Truths.
+
+On another occasion, in response to a question from a god about the primary blessings, Buddha expounded the Discourse on Blessings (Maṅgala Sutta) to gods and Brahmas from 10,000 world systems, causing 90 koṭi of them to realize the purity of Arahatship. The number of countless stream-enterers.
+
+The third event is when Buddha Koṇḍañña taught the Dhamma in the sky after defeating ascetics by displaying the Twin Miracle (yamaka pāṭihāriya). A number of 80,000 koṭi humans, gods, and Brahmas realized the fruit of arahantship. The number of those below the three levels is countless.
+
+#### Congregation of Disciples (Sannipāta)
+
+In the garden of Canda (Candārama) during his first rainy season retreat (vassa), two young men named Bhadda and Subhadda, principal disciples-to-be of the Buddha, along with 10,000 youths, attained arahantship after hearing the teaching of the Dhamma. There, surrounded by 1000 koṭi arahants led by Subhadda Thera, the Buddha recited the Pāṭimokkha on the full moon of Jettha (May/June). At another time, the recitation of the Pāṭimokkha was led by Vijitasena Thera with the Buddha surrounded by 1000 koṭi arahants. The third occasion was when the Buddha ordained King Udena and his followers. When they attained the purity of arahantship, the Buddha attended the recitation of the Pāṭimokkha along with 90 koṭi arahants led by Udena Thera.
+
+#### Universal King Vijitāvī, Bodhisatta Gautama
+
+The ruler of the world (cakkavattī) who governed the land beyond the four vast oceans based on truth (not with weapons), with his countless attendants, residing in Candavati at that time, was our Bodhisatta. When Buddha Koṇḍañña, accompanied by 100,000 koṭi arahants, arrived in Candavati, King Vijitāvī welcomed and invited the Sangha for a meal. After hearing the advice that the Buddha gave based on appreciation for his invitation, the King invited the Sangha to spend the three months of the rainy season (vassa) in the city of Candavati for the welfare of the people. The king also exhibited unparalleled generosity in the congregation of monks led by the Buddha (Buddhapamukha-saṅgha) during the vassa. Then Buddha Koṇḍañña declared his great prophecy: "Countless eons from now, in the eon after 3 asaṅkheyya and 100,000 eons, you will definitely become a Buddha." After hearing the great prophecy, filled with boundless faith, the King renounced his entire kingdom to the Buddha and became a Bhikkhu. After studying the Tipiṭaka, he realized the 8 attainments and 5 higher knowledges. He was then reborn in the Brahma realm after his death.
+
+#### Relics of Buddha Koṇḍañña
+
+Buddha Koṇḍañña entered parinibbāna in Candārama. His intact relics, golden and without fragments, are stored in the same garden in a stupa seven yojanas high, surrounded by seven precious gems.
+
 ## 11. Buddha Sumedha
 
 ### Kehidupan Kerajaan
