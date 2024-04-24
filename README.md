@@ -20,17 +20,17 @@ Kejadian ketiga adalah ketika Buddha Koṇḍañña mengajarkan Abhidhamma di an
 
 ### Kongregasi Para Murid (Sannipāta)
 
-Di taman Canda (Candārama) pada masa *vassa* pertama-Nya, dua pria muda bernama Bhadda dan Subhadda, calon siswa utama Buddha, bersama dengan 10.000 pemuda mencapai arahat setelah mendengar pembabaran Dhamma. Disana Buddha dikelilingi 100.000 koṭi (1 triliun) arahat yang dipimpin Subhadda Thera melafalkan Pāṭimokkha di Purnama Jettha (Mei/Juni). Di waktu lain, pembabaran Pāṭimokkha dipimpin oleh Vijitasena Thera dengan Buddha dikelilingi 1000 koṭi (10 miliyar) arahat. Yang ketiga, setelah Buddha menahbiskan Raja Udena beserta pengikutnya. Ketika mereka mencapai kesucian arahat, Buddha menghadiri pembabaran Pāṭimokkha beserta 900 koṭi (1 miliyar) arahat yang dipimpin oleh Udena Thera.
+Di taman Canda (Candārama) pada masa _vassa_ pertama-Nya, dua pria muda bernama Bhadda dan Subhadda, calon siswa utama Buddha, bersama dengan 10.000 pemuda mencapai arahat setelah mendengar pembabaran Dhamma. Disana Buddha dikelilingi 100.000 koṭi (1 triliun) arahat yang dipimpin Subhadda Thera melafalkan Pāṭimokkha di Purnama Jettha (Mei/Juni). Di waktu lain, pembabaran Pāṭimokkha dipimpin oleh Vijitasena Thera dengan Buddha dikelilingi 1000 koṭi (10 miliyar) arahat. Yang ketiga, setelah Buddha menahbiskan Raja Udena beserta pengikutnya. Ketika mereka mencapai kesucian arahat, Buddha menghadiri pembabaran Pāṭimokkha beserta 900 koṭi (1 miliyar) arahat yang dipimpin oleh Udena Thera.
 
 ### Raja Universal Vijitāvī, Bodhisatta Gautama
 
-Pemimpin jagat (cakkavattī) yang memimpin daratan melampaui 4 samudra luas atas dasar kebenaran (bukan dengan senjata), dengan pendampingnya yang tak-terhitung, yang berkediaman di Candavati saat itu adalah Bodhisatta kita. Ketika Buddha Koṇḍañña dalam perjalanan diikuti 100.000 koṭi arahat tiba di Candavati, Raja Vijitāvī menyambut dan mengundang makan para Saṅgha. Setelah mendengar nasehat yang Buddha berikan atas dasar apresiasi atas undangannya, Raja mengundang Saṅgha untuk menghabiskan 3 bulan *vassa* di kota Candavati demi kesejahteraan rakyat. Sang raja juga melakukan kedermawanan tanpa banding dalam kongregasi bhikkhu yang dipimpin Buddha (Buddhapamukha-saṅgha) selama *vassa*. Kemudian Buddha Koṇḍañña menyatakan ramalan agung-Nya: "Sejumlah eon tak terhingga dari sekarang, di eon setelah 3 *asaṅkheyya* dan 100.000 eon, Anda pasti menjadi seorang Buddha". Setelah mendengar ramalan agung, dipenuhi oleh keyakinan yang menjangkau luas, Raja mendanakan seluruh kerajaannya kepada Buddha dan menjadi Bhikkhu. Setelah mempelajari Tipiṭaka, ia merealisasi 8 pencapaian dan 5 pengetahuan lebih tinggi. Kemudian terlahir di alam Brahma setelah kematiannya.
+Pemimpin jagat (cakkavattī) yang memimpin daratan melampaui 4 samudra luas atas dasar kebenaran (bukan dengan senjata), dengan pendampingnya yang tak-terhitung, yang berkediaman di Candavati saat itu adalah Bodhisatta kita. Ketika Buddha Koṇḍañña dalam perjalanan diikuti 100.000 koṭi arahat tiba di Candavati, Raja Vijitāvī menyambut dan mengundang makan para Saṅgha. Setelah mendengar nasehat yang Buddha berikan atas dasar apresiasi atas undangannya, Raja mengundang Saṅgha untuk menghabiskan 3 bulan _vassa_ di kota Candavati demi kesejahteraan rakyat. Sang raja juga melakukan kedermawanan tanpa banding dalam kongregasi bhikkhu yang dipimpin Buddha (Buddhapamukha-saṅgha) selama _vassa_. Kemudian Buddha Koṇḍañña menyatakan ramalan agung-Nya: "Sejumlah eon tak terhingga dari sekarang, di eon setelah 3 _asaṅkheyya_ dan 100.000 eon, Anda pasti menjadi seorang Buddha". Setelah mendengar ramalan agung, dipenuhi oleh keyakinan yang menjangkau luas, Raja mendanakan seluruh kerajaannya kepada Buddha dan menjadi Bhikkhu. Setelah mempelajari Tipiṭaka, ia merealisasi 8 pencapaian dan 5 pengetahuan lebih tinggi. Kemudian terlahir di alam Brahma setelah kematiannya.
 
 ### Relik Buddha Koṇḍañña
 
-Buddha Koṇḍañña parinibbāna di Candārama. Relik-Nya yang utuh keemasan tanpa kepingan disimpan di taman yang sama dalam *cetiya* setinggi 7 yojana dikelilingi 7 permata mulia.
+Buddha Koṇḍañña parinibbāna di Candārama. Relik-Nya yang utuh keemasan tanpa kepingan disimpan di taman yang sama dalam _cetiya_ setinggi 7 yojana dikelilingi 7 permata mulia.
 
-### English Version 
+### English Version
 
 #### Kingdom Life
 
@@ -59,6 +59,8 @@ The ruler of the world (cakkavattī) who governed the land beyond the four vast 
 #### Relics of Buddha Koṇḍañña
 
 Buddha Koṇḍañña entered parinibbāna in Candārama. His intact relics, golden and without fragments, are stored in the same garden in a stupa seven yojanas high, surrounded by seven precious gems.
+
+---
 
 ## 11. Buddha Sumedha
 
@@ -91,6 +93,8 @@ Usia rata-rata di masa Buddha Sumedha adalah 90 ribu tahun. Buddha hidup selama 
 
 Buddha Sumedha, Sang Penakhluk 5 Mara, mencapai Parinibbāna di kebun Medha. Relik-nya tersebar ke seluruh penjuru Jambudīpa atas tekad-Nya.
 
+---
+
 ## 12. Buddha Sujāta
 
 ### Pangeran Sujāta
@@ -100,3 +104,76 @@ Setelah parinibbāna Buddha Sumedha, usia rata-rata manusia turun hingga 10 tahu
 ### Pembabaran Dhamma (Dhammābhisamayā)
 
 (in progress...)
+
+---
+
+## Big Number in Paḷi
+
+Here is how large numbers represented in paḷi.
+
+| Paḷi           | Scientific | English       | Indonesia   |
+| -------------- | ---------- | ------------- | ----------- |
+| suñña          | $0$        | zero          | nol         |
+| eka            | $1$        | one           | satu        |
+| dvi            | $2$        | two           | dua         |
+| ti             | $3$        | three         | tiga        |
+| catu           | $4$        | four          | empat       |
+| pañca          | $5$        | five          | lima        |
+| cha            | $6$        | six           | enam        |
+| satta          | $7$        | seven         | tujuh       |
+| aṭṭha          | $8$        | eight         | delapan     |
+| nava           | $9$        | nine          | sembilan    |
+| dasa           | $10$       | ten           | sepuluh     |
+| ekādasa        | $11$       | eleven        | sebelas     |
+| dvādasa        | $12$       | twelve        | 2 belas     |
+| telasa         | $13$       | thirteen      | 3 belas     |
+| catuddasa      | $14$       | fourteen      | 4 belas     |
+| pañcadasa      | $15$       | fifteen       | 5 belas     |
+| soḷasa         | $16$       | sixteen       | 6 belas     |
+| sattadasa      | $17$       | seventeen     | 7 belas     |
+| aṭṭharasa      | $18$       | eighteen      | 8 belas     |
+| ekūnavīsati    | $19$       | nineteen      | 9 belas     |
+| vīsati         | $20$       | twenty        | 2 puluh     |
+| tiṃsati        | $30$       | thirty        | 3 puluh     |
+| cattāḷisā      | $40$       | forty         | 4 puluh     |
+| paṇṇāsā        | $50$       | fifty         | 5 puluh     |
+| saṭṭhi         | $60$       | sixty         | 6 puluh     |
+| sattati        | $70$       | seventy       | 7 puluh     |
+| asīti          | $80$       | eighty        | 8 puluh     |
+| navuti         | $90$       | ninety        | 9 puluh     |
+| sata           | $10^2$     | hundred       | seratus     |
+| sahassa        | $10^3$     | 1 thousand    | seribu      |
+| dasasahassa    | $10^4$     | 10 thousands  | 10 ribu     |
+| satasahassa    | $10^5$     | 100 thousands | 100 ribu    |
+| sahassasahassa | $10^6$     | 1 million     | 1 juta      |
+| 1 koṭi         | $10^7$     | 10 millions   | 10 juta     |
+| 10 koṭi        | $10^8$     | 100 millions  | 100 juta    |
+| 100 koṭi       | $10^9$     | 1 billion     | 1 miliyar   |
+| 1.000 koṭi     | $10^{10}$  | 10 billions   | 10 miliyar  |
+| 10.000 koṭi    | $10^{11}$  | 100 billions  | 100 miliyar |
+| 100.000 koṭi   | $10^{12}$  | 1 trillion    | 1 triliun   |
+| 1.000.000 koṭi | $10^{13}$  | 10 trillions  | 10 triliun  |
+| 1 pakoṭi       | $10^{14}$  | 100 trillions | 100 triliun |
+| 1 koṭipakoṭi   | $10^{21}$  |               |             |
+| 1 nahuta       | $10^{28}$  |               |             |
+| 1 ninnahuta    | $10^{35}$  |               |             |
+| 1 akkhobhinī   | $10^{42}$  |               |             |
+| 1 bindhu       | $10^{49}$  |               |             |
+| 1 abbuda       | $10^{56}$  |               |             |
+| 1 nirabbuda    | $10^{63}$  |               |             |
+| 1 ahaha        | $10^{70}$  |               |             |
+| 1 ababa        | $10^{77}$  |               |             |
+| 1 aṭaṭa        | $10^{84}$  |               |             |
+| ???            | $10^{91}$  |               |             |
+| 1 uppala       | $10^{98}$  |               |             |
+| 1 kumuda       | $10^{105}$ |               |             |
+| 1 puṇḍarīka    | $10^{112}$ |               |             |
+| 1 paduma       | $10^{119}$ |               |             |
+| 1 kathāna      | $10^{126}$ |               |             |
+| 1 mahākathāna  | $10^{133}$ |               |             |
+| 1 asaṅkheyya   | $10^{140}$ |               |             |
+
+---
+
+If you find any mistake, please let me know:
+[📧 jordiyaputra@gmail.com](mailto://jordiyaputra@gmail.com)
