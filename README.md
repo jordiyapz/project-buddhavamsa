@@ -20,7 +20,7 @@ Kejadian ketiga adalah ketika Buddha Koṇḍañña mengajarkan Abhidhamma di an
 
 ### Kongregasi Para Murid (Sannipāta)
 
-Di taman Canda (Candārama) pada masa _vassa_ pertama-Nya, dua pria muda bernama Bhadda dan Subhadda, calon siswa utama Buddha, bersama dengan 10.000 pemuda mencapai arahat setelah mendengar pembabaran Dhamma. Disana Buddha dikelilingi 100.000 koṭi (1 triliun) arahat yang dipimpin Subhadda Thera melafalkan Pāṭimokkha di Purnama Jettha (Mei/Juni). Di waktu lain, pembabaran Pāṭimokkha dipimpin oleh Vijitasena Thera dengan Buddha dikelilingi 1000 koṭi (10 miliyar) arahat. Yang ketiga, setelah Buddha menahbiskan Raja Udena beserta pengikutnya. Ketika mereka mencapai kesucian arahat, Buddha menghadiri pembabaran Pāṭimokkha beserta 900 koṭi (1 miliyar) arahat yang dipimpin oleh Udena Thera.
+Di taman Canda (Candārama) pada masa _vassa_ pertama-Nya, dua pria muda bernama Bhadda dan Subhadda, calon siswa utama Buddha, bersama dengan 10.000 pemuda mencapai arahat setelah mendengar pembabaran Dhamma. Disana Buddha dikelilingi 100.000 koṭi (1 triliun) arahat yang dipimpin Subhadda Thera melafalkan Pāṭimokkha di Purnama Jettha (Mei/Juni). Di waktu lain, pembabaran Pāṭimokkha dipimpin oleh Vijitasena Thera dengan Buddha dikelilingi 1000 koṭi (10 miliyar) arahat. Yang ketiga, setelah Buddha menahbiskan Raja Udena beserta pengikutnya. Ketika mereka mencapai kesucian arahat, Buddha menghadiri pembabaran Pāṭimokkha beserta 900 koṭi (9 miliyar) arahat yang dipimpin oleh Udena Thera.
 
 ### Raja Universal Vijitāvī, Bodhisatta Gautama
 
@@ -111,7 +111,7 @@ Setelah parinibbāna Buddha Sumedha, usia rata-rata manusia turun hingga 10 tahu
 
 Here is how large numbers represented in paḷi.
 
-| Paḷi           | Scientific | English       | Indonesia   |
+| Paḷi           | Numeric    | English       | Indonesia   |
 | -------------- | ---------- | ------------- | ----------- |
 | suñña          | $0$        | zero          | nol         |
 | eka            | $1$        | one           | satu        |
