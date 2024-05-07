@@ -315,7 +315,7 @@ On the third assembly, Sumana Buddha expounded the Dhamma to humans, gods, and B
 
 In the city of Sumana, on the day of the end of the rainy retreat, surrounded by ten trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition").
 
-In the city of Sankassa, near the residence of King Arindama, on a golden mountain within a league, the Buddha taught King Arindama and his followers. After the teaching, they all attained arahantship and became ehi-bhikkhus. Surrounded by nine trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition"). This was the second gathering.
+In the city of Saṅkassa, near the residence of King Arindama, on a golden mountain within a league, the Buddha taught King Arindama and his followers. After the teaching, they all attained arahantship and became ehi-bhikkhus. Surrounded by nine trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition"). This was the second gathering.
 
 The third time, Sakka came to pay homage. Surrounded by 8 trillion of arahats, Buddha recited Pātimokkha.
 
