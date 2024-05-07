@@ -177,3 +177,152 @@ Here is how large numbers represented in paḷi.
 
 If you find any mistake, please let me know:
 [📧 jordiyaputra@gmail.com](mailto://jordiyaputra@gmail.com)
+
+## Sumana Buddha
+
+<!-- 四、善意佛（Sumana Buddha）略史
+
+Fourth, Brief History of Sumana Buddha:
+
+吉祥佛時人類的壽量是九萬歲，接著逐漸遞減到十歲；
+During the time of Sumana Buddha, human lifespan was ninety thousand years, gradually decreasing to ten years;
+
+當人類的壽量從十歲遞增到阿僧祇（asaṅkhyeyya,不可數）歲，再逐漸遞減到九萬歲的時候，
+When the human lifespan increased from ten years to an asaṅkhyeyya (uncountable) age, and then gradually decreased again to ninety thousand years,
+
+善意佛出生在梅卡拉（Mekhala）城。
+Sumana Buddha was born in the city of Mekhala.
+
+他的首席妃子是瓦努西卡，他有六百三十萬個宮女，他的儿子是阿纳帕玛。
+His chief consort was Vanusika, he had six million three hundred thousand palace maidens, and his son was Anapama.
+
+他看到了四个预兆后，骑着大象出家，三亿人跟他一起出家。
+After seeing four auspicious signs, he renounced the world riding an elephant, and three hundred million people renounced with him.
+
+在维沙卡（4-5月）的满月日，他吃了供养他的奶食，
+On the full moon day of Visakha (April-May), he consumed milk rice offered to him,
+
+并在前往菩提树的路上接受了八把草后，将草铺在菩提树（nāga）下就出现了高达三十立方的「不败之座」。
+and after accepting eight strands of grass on his way to the Bodhi tree, a "Seat of Invincibility" appeared under the Bodhi tree, reaching up to thirty cubits.
+
+菩萨盘腿坐在不败之座上，
+The Bodhisattva sat cross-legged on the Seat of Invincibility,
+
+从安般念开始，次第修行到四禅八定，之后修行观禅，
+practicing meditation sequentially from the first absorption (jhana) to the eighth, and then insight meditation,
+
+前夜证得宿命通、中夜证得天眼通、后夜证得漏尽通，
+attaining the knowledge of past lives in the first watch of the night, the divine eye in the middle watch, and the extinction of the defilements in the last watch,
+
+驱散了魔罗，证得正等正觉佛。
+dispelling Mara and attaining perfect enlightenment as a Buddha.
+
+佛教的三场Dhammābhisamaya法胜会
+
+The three assemblies of the Dhammābhisamaya:
+
+第一场Dhammābhisamaya法胜会：
+
+First Assembly of the Dhammābhisamaya:
+
+佛陀在菩提树附近以神足通飞往离大菩提树18里格的美卡腊园里对王子萨拉奥亚和国师布瓦塔，和他一起出家的三亿僧众宣讲了《转法轮经》，共有十千亿(一兆)的人类和天神、梵天人证悟了四圣谛。
+The Buddha, near the Bodhi tree, flew with miraculous power to the beautiful garden of Mekhala, eighteen leagues away from the Bodhi tree, and preached the Dhammacakkappavattana Sutta to Prince Saraoa and the preceptor Buvata, along with three hundred million monks who renounced with him, totaling ten trillion humans, gods, and Brahma beings who realized the Four Noble Truths.
+
+第二场Dhammābhisamaya法胜会：
+
+Second Assembly of the Dhammābhisamaya:
+
+善意佛曾在芒果树旁施展了双神变，为人类、天神和梵天开示了Dhamma不死之法。然后有十千亿(一兆)众生证悟了四圣谛。
+Sumana Buddha once displayed the twofold miracle by a mango tree, expounded the Dhamma of imperishability to humans, gods, and Brahma beings, and then ten trillion beings realized the Four Noble Truths.
+
+第三场Dhammābhisamaya法胜会：
+
+Third Assembly of the Dhammābhisamaya:
+
+善意佛对十万个轮围界的人类和天神、梵天人（色界众生）弘法，并开示及教导他们如何进入灭尽定，共有九千亿众生证悟了四圣谛。
+Sumana Buddha expounded the Dhamma to humans, gods, and Brahma beings (beings of the form realm) in the hundred thousand world systems, instructing them on how to enter the cessation of perception and feeling, and nine trillion beings realized the Four Noble Truths.
+
+弟子们的三次集会：
+
+Three Gatherings of Disciples:
+
+第一次集会：
+
+First Gathering:
+
+在吉祥城，雨安居结束的自恣日，在十千亿(一兆)阿拉汉的簇拥下，佛陀诵读了Ovāda Pātimokkha教诫巴帝摩卡。
+In the city of Sumana, on the day of the end of the rainy retreat, surrounded by ten trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition").
+
+第二次集会：
+
+Second Gathering:
+
+在桑卡萨城，靠近国王阿令法居住的地方，一由旬范围的金山上，佛陀教诫国王阿令法和他的随从们，在教诫以后，他们都证悟了阿拉汉，并成为“善来比库”。在九千亿阿拉汉的簇拥下，佛陀诵读了Ovāda Pātimokkha教诫巴帝摩卡。
+In the city of Sankassa, near the residence of King Arahata, on a golden mountain within a league, the Buddha taught King Arahata and his followers. After the teaching, they all attained arahantship and became "Goodly Arahants." Surrounded by nine trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition").
+
+第三次集会：
+
+Third Gathering:
+
+沙咖天帝来拜见善意佛，有八千亿人证悟了阿拉汉，佛陀诵读了Ovāda Pātimokkha教诫巴帝摩卡。
+Sakra Devanam Indra came to pay homage to Sumana Buddha, and eight trillion people attained arahantship. The Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition").
+
+他的兩位上首弟子是歸依長老（Saraṇa Thera）和已修長老（Bhāvitatta Thera）；
+His two chief male disciples were Elder Sarana and Elder Bhavitatta;
+
+他的兩位上首女弟子是索娜長老尼（Soṇā Therī）和優婆索娜長老尼（Upasoṇā Therī）；
+his two chief female disciples were Theri Sona and Theri Upasena;
+
+他有一位侍者。
+He had one attendant.
+
+他的菩提樹是龍樹（Nāga）。
+His Bodhi tree was a nāga tree.
+
+他的身高是九十腕尺。
+His height was ninety cubits.
+
+在善意佛的時代，我們的苟答玛菩薩投生為有大威神力的無比（Atula）龍王，
+In the time of Sumana Buddha, our Bodhisattva Gotama was born as the incomparable dragon king Atula,
+
+对佛陀和他的十千亿(一兆)比库制作天乐，并供养食物和饮料、袈裟。
+offering celestial music to Sumana Buddha and his ten trillion bhikkhus, and providing food, drink, and robes.
+
+當時，善意佛預言說：「這隻龍王未來必將成佛，名為苟答玛（Gotama）。」
+At that time, Sumana Buddha prophesied, "This dragon king will certainly become a Buddha in the future, named Gotama."
+
+菩萨非常努力地继续圆满十巴拉密。
+The Bodhisattva diligently continued to perfect the ten perfections.
+
+善意佛涅槃后，南瞻部洲的人民建起了四由旬高的酥油制的红色舍利塔，并供养舍利七宝。
+After Sumana Buddha's Nirvana, the people of the Southern Continent erected a red stupa made of butter, four leagues high, and offered the Seven Jewels of the relics. -->
+
+
+
+After Buddha Maṅgala time, human lifespan were decreased then increased to uncountable, and eventually reduced back to 90.000 years. On that time, Prince Sumana was born in the city of Mekhala. When he came of age, his chief consort was Vanusika who has 6.3 millions of maidens. Prince Sumana's son was named Anapama. After seeing the four omens, he renounced the world riding an elephant, and three hundred million people renounced with him. They practiced severe asceticism (dukkaracariyā).
+
+On the full month of Vesākh, he consumed milk rice by richman's daughter, and went to Nāga tree. By eight handful grass he spread under the Nāga Bodhi tree, there appeared his Unconquered Seat (aparājita pallaṅka) of 30 cubits in height. By meditating systematically from 1st jhāna to 8th, then insight meditation, He attained the knowledge of past lives, divine eye, and extinction of defilements on the 1st, 2nd, and 3rd watch accordingly. He thus dispelled Maras and attain the Perfect Enlightment as Buddha.
+
+### Dhammābhisamaya
+
+After 49 days spent near Bodhi tree, Buddha Sumana flew to beautiful garden of Mekhala, 18 yojanas away, with His psychic power. He then turned The Wheel by preaching to Prince Sarana and Bhavitatta (who will be His chief disciple) with their 37 koṭi (370 million) of followers, along with three hundred million of ascetics who renounced with Him. After this first sermon, one trillion devas, humans, and Brahmās fully realized the Four Noble Truths.
+
+Another occasion when Buddha was near a mango tree, to subjugate the conceit of heretics, He performed The Twin Miracle and administered the Dhamma. Ten trillion beings realized the Four Noble Truth.
+
+On the third assembly, Sumana Buddha expounded the Dhamma to humans, gods, and Brahmā in the hundred thousand world systems, instructing them on how to enter the cessation of perception and feeling, and nine trillion beings realized the Four Noble Truths.
+
+### Sannipāta
+
+In the city of Sumana, on the day of the end of the rainy retreat, surrounded by ten trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition").
+
+In the city of Sankassa, near the residence of King Arindama, on a golden mountain within a league, the Buddha taught King Arindama and his followers. After the teaching, they all attained arahantship and became ehi-bhikkhus. Surrounded by nine trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition"). This was the second gathering.
+
+Another time, Sakka came to pay homage. Surrounded by 8 trillion of arahats, Buddha recited Pātimokkha.
+
+Buddha Sumana's height was 90 cubits. His physical rays shining forth throughout all universe. His female Chief Disciple were Sonā Therī and Upasonā Therī.
+
+After Sumana Buddha's Parinibbāna, the people of the Jambudīpa erected a red stupa made of powdered red orpiment mixed with butter, four leagues high, and offered the Seven Jewels to The Unbreakened Golden Relic of Buddha.
+
+### Our Bodhisatta as Dragon King Atula
+
+At that time, our Bodhisatta Gotama was a powerful king of dragon (Nāga) named Atula. He offered alms giving of food and drinks, performed celestial music in honour, and offered set of robes to each Bhikkhus. Buddha Sumana prephesied, "This dragon king will certainly become a Buddha in the future, named Gotama." The Bodhisatta then become more hearteded to diligently continued to perfect the ten perfections.
