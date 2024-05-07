@@ -307,7 +307,7 @@ On the full month of Vesākh, he consumed milk rice by richman's daughter, and w
 
 After 49 days spent near Bodhi tree, Buddha Sumana flew to beautiful garden of Mekhala, 18 yojanas away, with His psychic power. He then turned The Wheel by preaching to Prince Sarana and Bhavitatta (who will be His chief disciple) with their 37 koṭi (370 million) of followers, along with three hundred million of ascetics who renounced with Him. After this first sermon, one trillion devas, humans, and Brahmās fully realized the Four Noble Truths.
 
-Another occasion when Buddha was near a mango tree, to subjugate the conceit of heretics, He performed The Twin Miracle and administered the Dhamma. Ten trillion beings realized the Four Noble Truth.
+Another occasion when Buddha was near a mango tree, to subjugate the conceit of heretics, He performed The Twin Miracle and administered the Dhamma. Ten trillion beings realized the Four Noble Truth. This was the second.
 
 On the third assembly, Sumana Buddha expounded the Dhamma to humans, gods, and Brahmā in the hundred thousand world systems, instructing them on how to enter the cessation of perception and feeling, and nine trillion beings realized the Four Noble Truths.
 
@@ -317,7 +317,9 @@ In the city of Sumana, on the day of the end of the rainy retreat, surrounded by
 
 In the city of Sankassa, near the residence of King Arindama, on a golden mountain within a league, the Buddha taught King Arindama and his followers. After the teaching, they all attained arahantship and became ehi-bhikkhus. Surrounded by nine trillion arahants, the Buddha recited the Ovāda Pātimokkha ("Exhortation and Admonition"). This was the second gathering.
 
-Another time, Sakka came to pay homage. Surrounded by 8 trillion of arahats, Buddha recited Pātimokkha.
+The third time, Sakka came to pay homage. Surrounded by 8 trillion of arahats, Buddha recited Pātimokkha.
+
+### Buddha Sumana
 
 Buddha Sumana's height was 90 cubits. His physical rays shining forth throughout all universe. His female Chief Disciple were Sonā Therī and Upasonā Therī.
 
