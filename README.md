@@ -301,7 +301,7 @@ After Sumana Buddha's Nirvana, the people of the Southern Continent erected a re
 
 After Buddha Maṅgala time, human lifespan were decreased then increased to uncountable, and eventually reduced back to 90.000 years. On that time, Prince Sumana was born in the city of Mekhala. When he came of age, his chief consort was Vanusika who has 6.3 millions of maidens. Prince Sumana's son was named Anapama. After seeing the four omens, he renounced the world riding an elephant, and three hundred million people renounced with him. They practiced severe asceticism (dukkaracariyā).
 
-On the full month of Vesākh, he consumed milk rice by richman's daughter, and went to Nāga tree. By eight handful grass he spread under the Nāga Bodhi tree, there appeared his Unconquered Seat (aparājita pallaṅka) of 30 cubits in height. By meditating systematically from 1st jhāna to 8th, then insight meditation, He attained the knowledge of past lives, divine eye, and extinction of defilements on the 1st, 2nd, and 3rd watch accordingly. He thus dispelled Maras and attain the Perfect Enlightment as Buddha.
+On the full month of Vesākh, he consumed milk rice by richman's daughter, and went to Nāga tree. By eight handful grass he spread under the Nāga Bodhi tree, there appeared his Unconquered Seat (aparājita pallaṅka) of 30 cubits in height. By meditating systematically from 1st jhāna to 8th, then insight meditation, He attained the pubbenivāsānussatiñāṇa, dibbacakkhuñāṇa, and extinction of defilements (āsavakkhayañāṇa) on the 1st, 2nd, and 3rd watch accordingly. He thus defeated Maras and attain the Perfect Enlightment as Buddha.
 
 ### Dhammābhisamaya
 
@@ -325,4 +325,4 @@ After Sumana Buddha's Parinibbāna, the people of the Jambudīpa erected a red s
 
 ### Our Bodhisatta as Dragon King Atula
 
-At that time, our Bodhisatta Gotama was a powerful king of dragon (Nāga) named Atula. He offered alms giving of food and drinks, performed celestial music in honour, and offered set of robes to each Bhikkhus. Buddha Sumana prephesied, "This dragon king will certainly become a Buddha in the future, named Gotama." The Bodhisatta then become more hearteded to diligently continued to perfect the ten perfections.
+At that time, our Bodhisatta Gotama was a powerful king of dragon (Nāga) named Atula. He offered alms giving of food and drinks, performed celestial music in honour, and offered set of robes to each Bhikkhus. Buddha Sumana prophesied, "This dragon king will certainly become a Buddha in the future, named Gotama." The Bodhisatta then become more heartened to diligently continued the ten perfections.
